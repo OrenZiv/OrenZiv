@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @OrenZiv
+- 👀 I’m a person who talks.
+- 🌱 I’m currently learning how to talk professionally.
+- 📫 How to reach me at orez17@gmail.com / oren.ziv@debijenkorf.nl
